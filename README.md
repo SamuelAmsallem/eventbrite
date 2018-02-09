@@ -1,1 +1,1 @@
-J'ai fait ce que j'ai pu
+Only god can judge me
